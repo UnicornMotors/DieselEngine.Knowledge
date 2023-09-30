@@ -1,0 +1,1 @@
+- [Watch his head explode when I show him how to crank up this RARE semi!](https://youtu.be/4_rjZme49zs)
