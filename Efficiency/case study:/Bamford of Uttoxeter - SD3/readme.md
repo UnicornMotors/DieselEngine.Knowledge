@@ -1,1 +1,2 @@
 - [How Much Fuel Does This Vintage Engine Use? Bamford stationary single-cylinder diesel efficiency](https://youtu.be/cbQz5T-VA8s)
+- [First Start Of Old Bamford Stationary Engine SD3](https://youtu.be/4gdXBY6BDpU)
